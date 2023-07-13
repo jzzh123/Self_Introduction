@@ -1,2 +1,2 @@
 # jzzh226
-im beginner to this field ，wish your criticism
+Im new to this field, please be generous to give your criticism
